@@ -44,42 +44,26 @@ Para trocar uma lâmpada, siga este guia passo a passo:
 
 Para realizar uma ida ao mercado de forma organizada e eficiente, siga as seguintes etapas:
 
-1. **Preparação:**
-   - Certifique-se de ter uma lista de compras pronta com os itens que você precisa.
-   - Certifique-se de ter sua carteira ou método de pagamento preferido.
+1. **Preparação:** Certifique-se de ter uma lista de compras pronta com os itens que você precisa. Certifique-se de ter sua carteira ou método de pagamento preferido.
 
-2. **Saia de Casa:**
-   - Antes de sair, verifique se todas as portas estão trancadas e os aparelhos eletrônicos desligados, se necessário.
+2. **Saia de Casa:** Antes de sair, verifique se todas as portas estão trancadas e os aparelhos eletrônicos desligados, se necessário.
 
-3. **Caminhe até o Mercado:**
-   - Siga em direção ao mercado a pé ou de carro, dependendo da distância e das suas preferências.
+3. **Caminhe até o Mercado:** Siga em direção ao mercado a pé ou de carro, dependendo da distância e das suas preferências.
 
-4. **Chegada ao Mercado:**
-   - Ao chegar ao mercado, encontre um lugar adequado para estacionar, caso tenha ido de carro.
-   - Certifique-se de estar com sua lista de compras em mãos.
+4. **Chegada ao Mercado:** Ao chegar ao mercado, encontre um lugar adequado para estacionar, caso tenha ido de carro. Certifique-se de estar com sua lista de compras em mãos.
 
-5. **Entrando no Mercado:**
-   - Entre no mercado e procure um carrinho de compras ou uma cesta, se necessário.
-   - Lembre-se de manter sua lista de compras acessível.
+5. **Entrando no Mercado:** Entre no mercado e procure um carrinho de compras ou uma cesta, se necessário. Lembre-se de manter sua lista de compras acessível.
 
-6. **Navegue pelas Prateleiras:**
-   - Comece a percorrer as prateleiras do mercado de acordo com os itens da sua lista.
-   - Pegue os produtos que você precisa e coloque-os no carrinho ou cesta.
+6. **Navegue pelas Prateleiras:** Comece a percorrer as prateleiras do mercado de acordo com os itens da sua lista. Pegue os produtos que você precisa e coloque-os no carrinho ou cesta.
 
-7. **Verifique os Preços:**
-   - Ao pegar os produtos, verifique os preços e compare com o que está na sua lista de compras.
+7. **Verifique os Preços:** Ao pegar os produtos, verifique os preços e compare com o que está na sua lista de compras.
 
-8. **Caixa:**
-   - Quando terminar de pegar todos os itens da sua lista, vá até o caixa do mercado.
+8. **Caixa:** Quando terminar de pegar todos os itens da sua lista, vá até o caixa do mercado.
 
-9. **Pagamento:**
-   - Faça o pagamento pelos produtos escolhidos. Use o método de pagamento de sua escolha.
+9. **Pagamento:** Faça o pagamento pelos produtos escolhidos. Use o método de pagamento de sua escolha.
 
-10. **Retorno para Casa:**
-    - Após o pagamento, saia do mercado e retorne para casa, levando suas compras com você.
+10. **Retorno para Casa:** Após o pagamento, saia do mercado e retorne para casa, levando suas compras com você.
 
-11. **Organização em Casa:**
-    - Em casa, organize os produtos nos lugares apropriados, guarde itens perecíveis na geladeira, etc.
+11. **Organização em Casa:** Em casa, organize os produtos nos lugares apropriados, guarde itens perecíveis na geladeira, etc.
 
-12. **Conclusão:**
-    - Parabéns! Você concluiu sua ida ao mercado com sucesso.
+12. **Conclusão:** Parabéns! Você concluiu sua ida ao mercado com sucesso.
